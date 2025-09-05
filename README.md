@@ -1,7 +1,7 @@
-# RepositorioTeste
+Teste de Commit.
 
-teste de aprendizado
+Atirei o pau no gato
 
+depressão e trevas
 
-teste de commit
-
+Qualquer coisa literalmente ☺☻♥♦♣♠•◘○◙
